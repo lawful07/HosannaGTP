@@ -1,1 +1,1 @@
-# HosannaGTP
+Hosanna Global Trade bridges local expertise with global markets by offering high-impact consulting services and facilitating sustainable trade in agriculture, precious metals, minerals, and green energy. Our goal is to foster economic empowerment, ethical sourcing, and global access to resources and innovation.
